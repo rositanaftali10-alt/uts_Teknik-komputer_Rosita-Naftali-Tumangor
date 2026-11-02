@@ -1,0 +1,1 @@
+# uts_Teknik-komputer_Rosita-Naftali-Tumangor
